@@ -1,3 +1,3 @@
 Cats are beautiful
 
-Love cats!
+Love cats! Hurray!
